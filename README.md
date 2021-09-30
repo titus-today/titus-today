@@ -1,0 +1,2 @@
+- 👋 Hallo, ich heiße Titus :dog2:
+- 👀 Meine liebsten Hobbies sind Spielen :baseball:, Essen :bone: und Kuscheln :hugs:
